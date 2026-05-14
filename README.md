@@ -1,25 +1,23 @@
-***
-<h5 align="center">
-<img src="https://64.media.tumblr.com/a4d5f8f1cacc1198314e1681031cddeb/d38baf27a53016ff-a8/s400x600/2f1f0ea10f08d7cbbd919deb88cd592fa569dd8f.pnj"/>
-</h5>  
-
-<h4 align="center">
-shig ── he/her ── polish
-</h4> 
-<h5 align="center">
-<img src="https://64.media.tumblr.com/17c898b2f95dda3faa17c1381e72adb2/f91338ab3ff63472-1c/s250x400/d52597537a1e811583ff0b1b8b500196f41986dc.pnj"/>
-</h5>  
-<div align="center">
-
-ㅤㅤㅤㅤ<p> [rentry](https://rentry.co/rmkshig) ㅤ [gstbook](https://bemyguest.123guestbook.com/)ㅤ<p/>
-<p> usually above gi on safeㅤw2i if i dont respondㅤfeel free to int in game </p>
-</div>
+<br ><br> <br> <br> <br ><br> 
 
 <h5 align="center">
-<img src="https://64.media.tumblr.com/09e1e98163d9764404c98e20d24b505e/d38baf27a53016ff-6a/s400x600/556f2ed64af66ae4492bce1afaa699c0532536f4.pnj"/>
-</h5>  
 
-***
-<p align ="center">
-<img src="https://external-media.spacehey.net/media/sJtfXyZngNj7jF_Rp4mV2jCmmn2wptj_UaSJJkDIhYO0=/https://i.postimg.cc/VLDyS4sp/96514967.jpg"/><img src="https://y2k.neocities.org/stamps/tumblr_inline_pbk6zbvnsb1vjkfs0_540.png"/><img src="https://y2k.neocities.org/stamps/my_memory_sucks_by_renatalmar.png"/><img src="https://external-media.spacehey.net/media/sBf_WuCdpYu3tWd8uGNiNF-vomFdmUYUjyeyTcoQaG4Y=/https://media.discordapp.net/attachments/988467825452670996/988470269180014632/11.gif"/><img src="https://64.media.tumblr.com/d119023c93b5ccf0cb43b15ca0f0d4df/tumblr_pxdvwo0Ie21xbgu08o3_100.png" /><img src="https://supplies.ju.mp/assets/images/gallery01/f3384d1e.png?v=9163b103" />
-</p>
+<a href="https://rentry.co/ptaccessories"><img src="https://github.com/user-attachments/assets/7ddac740-01d7-45e9-8c2d-6980c1d0024a" width="252" height="auto" align="center"/></a><br>
+<br>
+<a href="https://deathnote.atabook.org/"><img src="https://github.com/user-attachments/assets/97d8e0a5-5996-48c2-9505-46b076769d2e" width="75" height="auto"/></a> ⠀<a href="https://rentry.co/tworooks"><img src="https://github.com/user-attachments/assets/aab237e7-b4cc-438e-974f-f30ed3ce9f05" width="75" height="auto"/></a> ⠀<a href="https://rentry.co/howtotint"><img src="https://github.com/user-attachments/assets/965b9233-12aa-49c6-9590-144544798e3e" width="75" height="auto"/></a>
+<br>
+<img src="https://github.com/user-attachments/assets/c09c3954-789f-4bc8-8f24-c91ce1a57083" width="249" height="auto"/>
+<br>
+<a href="https://lordkira.straw.page/"><img src="https://github.com/user-attachments/assets/3d66f152-dbe6-4e18-bc6b-222c7db3131b" width="119" height="auto"/></a> ⠀<a href="https://discordid.netlify.app/?id=801889770790846514"><img src="https://github.com/user-attachments/assets/bbce067f-50f0-449c-b204-ba8de3bb6e6a" width="119" height="auto" /></a>
+<br>
+<img src="https://github.com/user-attachments/assets/30ecaeaa-bafd-47d3-999b-7d3429b5abd6" width="252" height="auto" align="center"/>
+<br>
+<a href="https://rentry.co/17aug"><img src="https://github.com/user-attachments/assets/fda957fc-4583-4510-bad7-7694c497921c" width="123" height="auto"/></a>  <a href="https://rentry.co/sonichedgehog"><img src="https://github.com/user-attachments/assets/009950d1-fad6-40b7-a9d6-86551519ed24" width="123" height="auto"/></a>
+<br><br>
+<img src="https://komarev.com/ghpvc/?username=peruere&color=5C5C5C&style=flat-square&label=⠀POPULATION⠀&base=13693"> ⠀⠀⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀<img src="https://github.com/user-attachments/assets/acde22eb-adcd-4741-a08b-f669d4d09e3d" width="10" height="auto" title="Ponytown Award" />
+
+</h5>
+ 
+
+
+<br> <br> <br ><br> <br> <br><br> <br> <br ><br> <br> <br><br> <br> <br ><br> <br> <br><br> <br> <br ><br> <br> <br><br> <br> <br ><br> <br> <br><br> <br> <br ><br> <br> <br>
