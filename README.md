@@ -7,13 +7,13 @@
   
 <tr>
 <td align="center">
-gif here <!-- TOP TOP TOP TOP TOP -->
+= <!-- TOP TOP TOP TOP TOP -->
 </td>
 </tr>
   
 <tr>
 <td align="center">
-under the gif  <!-- BOTTOM BOTTOM BOTTOM -->
+= <!-- BOTTOM BOTTOM BOTTOM -->
 </td>
 </tr>
 </table>
